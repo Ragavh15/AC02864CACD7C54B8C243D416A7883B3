@@ -1,5 +1,4 @@
 # __NM ID__ AC02864CACD7C54B8C243D416A7883B3
-## How to Create a Reel Design Using Canva
 
 #__Blog__ https://tripletofficial.blogspot.com/
 
